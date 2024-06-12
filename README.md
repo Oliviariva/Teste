@@ -2,11 +2,11 @@
 
 Estudante do Colégio Guilherme de Almeida
 
-Aluna do 1º ano A integral
+Aluna do 2° ano B noturno (2024)
 
-Estudante do componente curricular Pensamento Computacional
+Estudante de programação
 
-Liderada pela Prof FRAN CARLA <3
+Liderada pela prof Aline 
 
 Nascida no dia 05 de março de 2008
 
